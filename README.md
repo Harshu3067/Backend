@@ -1,3 +1,4 @@
+<img width="864" height="1152" alt="G2TglsJPaTW24SGs64Zx7" src="https://github.com/user-attachments/assets/d8658189-c4a0-4fb5-b2b8-630600bcd891" />
 Hi, I'm Harshitha Marati
  **Senior Associate at Amazon** | Operational Excellence | Data Analysis | Cloud & DevOps Enthusiast  
  Hyderabad, India   Email: maratiharshu3020@gmail.com   LinkedIn: [Harshitha Marati](https://www.linkedin.com/in/harshitha-marati-56369a196)
